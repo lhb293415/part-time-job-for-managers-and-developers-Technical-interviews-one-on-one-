@@ -2,8 +2,49 @@
 #Part-time-job-for-managers-and-developers-Technical-interviews-one-on-one-
 
 This is showcased primarily for managers and developers who pay for online one-on-one interviews and survey research questionnaires.
+## Are you a Fidelity customer with significant investable assets?
 
-## Seeking founders and/or CEO's in early businesses or startups(7 days ago)
+Fidelity Investments is seeking your feedback to help us improve our website! We're seeking Fidelity customers with managed accounts to give input on a new webpage.
+
+Price: $50 Time:20minutes   method：One-on-One
+
+**[Interview link](https://app.respondent.io/respondents/projects/view/5eb30421cafb420028b03de7/are-you-a-fidelity-customer-with-significant-investable-assets?referralCode=williamlee-6006084f2319"link")**
+
+
+## Seeking IT Decision Makers
+
+We are looking to speak with IT decision-makers to gain some insights regarding how the COVID-19 situation is impacting your business. Specifically, device deployment, workflows, IT support/troubleshooting, purchase journey, budgets, and end-user workspaces.
+
+Price: $100 Time:20minutes   method：One-on-One
+
+**[Interview link](https://app.respondent.io/respondents/projects/view/5eb300369ee03f003e442a46/seeking-it-decision-makers?referralCode=williamlee-6006084f2319"link")**
+
+
+## Seeking accounting professionals at accounting firms
+
+We are a software company looking to speak with accounting professionals. If interested, please complete the questionnaire. It has 12 questions and should take about 5 minutes. We'll get in touch to schedule an interview if you are a good candidate for the study. We greatly appreciate your time!
+
+Price: $100 Time:20minutes   method：One-on-One
+
+**[Interview link](https://app.respondent.io/respondents/projects/view/5eb34bbf9ee03f003e442efc/seeking-accounting-professionals-at-accounting-firms?referralCode=williamlee-6006084f2319"link")**
+
+## Edge Data Centers to support 5G equipment
+
+We would love to talk to you about your experience with Edge data centers. Do you work with a wireless provider and are knowledgeable and involved with power, power quality, or power infrastructure systems. Please let us know, we would like to talk to YOU!
+
+Price: $300.00 Time:20minutes   method：One-on-One
+
+**[Interview link](https://app.respondent.io/respondents/projects/view/5ea7443a0883ac00316ff63b/edge-data-centers-to-support-5g-equipment?referralCode=williamlee-6006084f2319"link")**
+
+## Do you work in the mortgage industry? If so, we want to talk! - 45 minute call(7 days ago)
+
+We're an online insurance marketplace that is interested in speaking with mortgage professionals to learn about their experience dealing with homeowners insurance. You don't need to be an insurance expert to qualify!
+
+Price: $50 Time:45minutes   method：One-on-One
+
+**[Interview link](https://app.respondent.io/respondents/projects/view/5eb2f32196ca820036e62348/do-you-work-in-the-mortgage-industry-if-so-we-want-to-talk!-45-minute-call?referralCode=williamlee-6006084f2319"link")**
+
+## Seeking founders and/or CEO's in early businesses or startups(13hours ago)
 
 We are a tech company that builds products for businesses and their marketing, sales and support departments. We're looking to understand your role and how your needs change as your new business evolves and grows.
 
